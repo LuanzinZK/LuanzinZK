@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LuanzinZK
+- 👀 I’m interested in aprender a programar!
+- 🌱 I’m currently learning Programar!
+- 📫 How to reach me luanzinzk5@gmail.com!
